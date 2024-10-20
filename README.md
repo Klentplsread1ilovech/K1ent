@@ -5,7 +5,7 @@
 - 💞️ fav things: manta ray, shark and orange kitty
 - ✮ my personality sometimes act like mad hater patient, sry bout that
 - ⋆.˚✮🎧✮˚.⋆ music type: i love heavy metal, rocks sm -͟͟͞☆
-- .𖥔 ݁ ˖ִ ࣪⚝₊ ⊹˚: i kinda shy (lowkey) so i don't talk too much
+- .𖥔 ݁ ˖ִ ࣪⚝₊ ⊹˚: i kinda shy (introvert) so i don't talk too much
 ![image](https://github.com/user-attachments/assets/cd0b1ca2-591f-4f8a-b921-de05709ac654)
 -  *ੈ✩‧₊˚ you can call me: klen or freak, that's okay for both
 <!---
