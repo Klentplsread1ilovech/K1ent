@@ -2,7 +2,7 @@
 ![image](https://github.com/user-attachments/assets/16a66d9f-028a-4501-a0e2-4656e2582efd)
 - ✶⋆.˚ artist (idk) (*´꒳`*) 
 - ִ ࣪𖤐 fandom i joined: FFVII, ULTRAKILL, Marvel (especially deadpool or spiderman), Silent hill II, The boys, COD, ...
-- 💞️ fav things: manta ray, shark and orange kitty
+- 💞️ fav animals: manta ray, shark and orange kitty
 - ✮ my personality sometimes act like mad hater patient, sry bout that
 - ⋆.˚✮🎧✮˚.⋆ music type: i love heavy metal, rocks sm -͟͟͞☆
 - .𖥔 ݁ ˖ִ ࣪⚝₊ ⊹˚: i kinda shy (introvert) so i don't talk too much
