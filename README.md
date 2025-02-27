@@ -1,7 +1,7 @@
 - ✧ Hi, I'm freak-  ☆
 ![image](https://github.com/user-attachments/assets/16a66d9f-028a-4501-a0e2-4656e2582efd)
 - ✶⋆.˚ artist (idk) (*´꒳`*) 
-- ִ ࣪𖤐 fandom i joined: FFVII, ULTRAKILL, Marvel (especially deadpool or spiderman), Silent hill II, The boys, COD, mouthwashing ...
+- ִ ࣪𖤐 fandom i joined: FFVII, ULTRAKILL, Marvel (especially deadpool or spiderman), Silent hill II, The boys, COD, mouthwashing, JJBA, DB...
 ![image](https://github.com/user-attachments/assets/24dbe6a1-2547-4329-bbf8-bf68cce58f2b)
 - 💞️ fav animals: manta ray, shark and orange kitty
 - ✮ my personality sometimes act like mad hater patient, sry bout that
